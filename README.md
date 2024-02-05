@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @KStraight but my friends just call me Drake.
+- 👀 I’m interested in coding, gaming, and long nights of staring at a screen because I dont understand how 1 line breaks the whole program.
+- 🌱 I’m currently learning C++
+- 💞️ I’m looking to collaborate on anything. I am introverted though so dont expect anything from me for at least 3 hours
+- 📫 How to reach me... **Email:** Dstrait3773@gmail.com    **Discord:** mr.dot.motivation
+- 😄 Pronouns: he/him (Ill respond to anything though)
+- ⚡ Fun fact: I Listen to waaaaaaaaaaay too much music.
